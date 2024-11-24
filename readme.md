@@ -1,0 +1,1 @@
+Jeg gjer dette fordi nynorsk er digg!
